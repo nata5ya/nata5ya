@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @nata5ya
+ Hi, I’m @nata5ya
